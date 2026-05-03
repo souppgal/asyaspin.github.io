@@ -1,1 +1,1 @@
-# asyaspin.github.io
+https://cdn.discordapp.com/attachments/1312929726444081195/1500166695409418472/asyaglobe.gif?ex=69f81b5b&is=69f6c9db&hm=9b3c0a283f3e673bbb232d478a846393f56e156e9de1a7c64be42215297e823c&
